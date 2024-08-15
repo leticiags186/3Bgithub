@@ -7,3 +7,5 @@
 ### você pode entrar em contato comigo:
 
 leticiasantos092006@gmail.com
+
+![](https://media1.tenor.com/m/jacchkTyrhYAAAAC/happy-dance.gif)
